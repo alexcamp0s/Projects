@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @alexcamp0s
+- 👀 I’m interested in Fintech
+- 🌱 I’m currently learning ... everything! 'cause learning never ends
+- 💞️ I’m looking to collaborate on something huge and exciting
+- ⚡ Fun fact: I make everyone try pineapple pizza and like it
